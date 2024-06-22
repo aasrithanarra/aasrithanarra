@@ -1,4 +1,4 @@
-- 👋 Hi there, I’m Aasritha Devi Narra
+- 👋 Hi there! I’m Aasritha Devi Narra
 - 👀 I’m Student at SRK Institute of Technology
 - 🌱 I’m pursuing my B.Tech in Computer Science
 - 📫 Linkedin : https://www.linkedin.com/in/aasritha-narra-466729258/
